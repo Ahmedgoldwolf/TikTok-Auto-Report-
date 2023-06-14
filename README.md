@@ -15,7 +15,7 @@
  
  Telegram: 👉  https://t.me/sniper_spy
  <br>
- Video: https://t.me/reportbysniperspy
+ Video: https://t.me/tiktokreportsniperspy
  <br>
 ▔▔▔▔▔▔╲▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
