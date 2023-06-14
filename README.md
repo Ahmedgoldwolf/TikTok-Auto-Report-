@@ -19,4 +19,4 @@
  <br>
 ▔▔▔▔▔▔╲▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
-<img src="https://i.postimg.cc/CKRyKsBY/tik2.jpg" alt="Trulli" width="239" height="432">
+<img src="https://i.postimg.cc/CKRyKsBY/tik2.jpg" alt="Trulli" width="200" height="532">
